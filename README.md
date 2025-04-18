@@ -2,7 +2,7 @@
 - 👀 I’m interested in Football and Badminton
 - 🌱 I’m currently learning 5th
 - 💞️ I’m looking to collaborate on Microsoft
-- 📫 How to reach me by Phone number
+- 📫 How to reach me : by my Phone number
 - ⚡ Fun fact: I hate Messi....I love Ronaldo!!! SSSSSSSSSSSUUUUUUUUUUUUUUUUUIIIIIIIIIIIIIIII!!!
 
 <!---
