@@ -3,8 +3,7 @@
 - 🌱 I’m currently learning 5th
 - 💞️ I’m looking to collaborate on Microsoft
 - 📫 How to reach me by Phone number
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I hate Messi....I love Ronaldo!!! SSSSSSSSSSSUUUUUUUUUUUUUUUUUIIIIIIIIIIIIIIII!!!
 
 <!---
 KavinMT/KavinMT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
